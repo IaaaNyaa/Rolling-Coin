@@ -1,2 +1,2 @@
-Salosagcol, Ian Deniel\n
+Salosagcol, Ian Deniel\
 Aspa, Eldrian
